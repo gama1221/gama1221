@@ -1,3 +1,8 @@
+# Contents
+[About](https://github.com/gama1221#About)
+[Skills](https://github.com/gama1221#Skills)
+[Hobbies](https://github.com/gama1221#Hobbies)
+[Contact](https://github.com/gama1221#Contact)
 # About
  - Loading...
 # Skills
