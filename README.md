@@ -22,7 +22,7 @@
 - Traveling
 - Reading
 - Watching Movies
-- Listing Music
+- listening Music
 # Contact
 1. [WhatsApp](https://wa.me/+251991732949)
 2. [Telegram](https://t.me/gama2112)
